@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-![](https://64.media.tumblr.com/445e5360b65d7f10e8c015b79a41b72f/fda44d176f1307fa-0b/s100x200/f50fd44c4f815b162df84756c80779a162debf39.gifv)
+<img src="https://64.media.tumblr.com/5c38cb5056cfcdefa30746d83e4597a2/469bd59a4df6b1dc-b3/s100x200/acddf5950dd95c30602f0e7988ff7bcedd264245.pnj"/>
 </p>
 
 
