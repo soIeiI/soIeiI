@@ -3,13 +3,8 @@
 </p>
 
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1412070055163723796/1447551212781174834/Untitled704_20251208192634.png?ex=6938089f&is=6936b71f&hm=b0c571b15bce1968021cde3b4a83cae2b355a8dbb2af1128950fe01e93923036&" />
-   
    <img src="https://komarev.com/ghpvc/?username=melanchoir&color=FF8DBB&style=plastic&label=&nbsp♡&nbsp" /> 
-  
-  <img src="https://cdn.discordapp.com/attachments/1412070055163723796/1447551213351473183/Untitled704_20251208192612.png?ex=6938089f&is=6936b71f&hm=06725b419b492d5a13e6b5ec2cebc198da3879beba710e225c06dea353cd2be1&"/>
- 
-</p>
+ </p>
 
 
 
