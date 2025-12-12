@@ -16,7 +16,7 @@
 </p>
 <div align="center">
 
-[rentry](https:/rentry.co/KENHlNA)⠀.⠀[straw](https://dollfelt.straw.page)⠀.⠀[ata](https://melanchoir.atabook.org)⠀.⠀[prns](https://pronouns.cc/@melanchoir)
+[rentry](https://rentry.co/KENHlNA)⠀.⠀[straw](https://dollfelt.straw.page)⠀.⠀[ata](https://melanchoir.atabook.org)⠀.⠀[prns](https://pronouns.cc/@melanchoir)
 
 </div>
 
