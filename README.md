@@ -31,3 +31,9 @@
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1412070055163723796/1447557148996534312/Untitled703_20251208195446.png?ex=69380e26&is=6936bca6&hm=7b4335e1f2baf81a6c58118f61bc2e1948e05027859de0875cf6014aa90a1743"/>
 </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5akiv1fuefshgjrvrmpcri13r&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
