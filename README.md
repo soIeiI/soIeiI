@@ -15,6 +15,13 @@
 <img src="https://cdn.discordapp.com/attachments/1412070055163723796/1447551211837587592/Untitled701_20251208193036.png?ex=6938089f&is=6936b71f&hm=326856845b0514d79c870321dd9248d285411790c15d920131899e17ee70f559&"/>
 </p>
 
+<div align="center">
+
+[rentry](https://rentry.co/KENHlNA)⠀.⠀[straw](https://dollfelt.straw.page)⠀.⠀[ata](https://melanchoir.atabook.org)⠀.⠀[prns](https://pronouns.cc/@meIanchoir)
+
+</div>
+
+
 
 
 
