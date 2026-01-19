@@ -15,7 +15,7 @@ click on the stamps for my links !
 </p>
 <div align="center">
    
-[![Alt text](https://64.media.tumblr.com/31034d0729a48d08a1d05010228cadcf/37831daa2a5dd36b-02/s100x200/5deb9943170a5f8b99a85dde16d7920290d4cab0.gifv)](https://rentry.co/KENHlNA) ㅤ[![Alt text](https://64.media.tumblr.com/a535140a30ca30e48c0b47c87c2c761b/37831daa2a5dd36b-ab/s100x200/ed6707b9ec5f18c48ce9ee10cc9593765646e400.gifv)](https://dollfelt.straw.page) ㅤ[![Alt text](https://64.media.tumblr.com/96849cd3c142e2dbba4a546661a485e8/37831daa2a5dd36b-0f/s100x200/b5da4d0c102296fca91fe9dfc6ddb6b9d45205e7.gifv)](https://melanchoir.atabook.org) ㅤ[![Alt text](https://64.media.tumblr.com/aa79b00253e4b573364bc95393850ea6/37831daa2a5dd36b-ab/s100x200/86a24fa5209c61f659b08f3b1f3616164d427d28.gifv)](https://pronouns.cc/@meIanchoir)
+[![Alt text](https://64.media.tumblr.com/31034d0729a48d08a1d05010228cadcf/37831daa2a5dd36b-02/s100x200/5deb9943170a5f8b99a85dde16d7920290d4cab0.gifv)](https://rentry.co/KENHlNA) [![Alt text](https://64.media.tumblr.com/a535140a30ca30e48c0b47c87c2c761b/37831daa2a5dd36b-ab/s100x200/ed6707b9ec5f18c48ce9ee10cc9593765646e400.gifv)](https://dollfelt.straw.page) [![Alt text](https://64.media.tumblr.com/96849cd3c142e2dbba4a546661a485e8/37831daa2a5dd36b-0f/s100x200/b5da4d0c102296fca91fe9dfc6ddb6b9d45205e7.gifv)](https://melanchoir.atabook.org) [![Alt text](https://64.media.tumblr.com/aa79b00253e4b573364bc95393850ea6/37831daa2a5dd36b-ab/s100x200/86a24fa5209c61f659b08f3b1f3616164d427d28.gifv)](https://pronouns.cc/@meIanchoir)
 
 </div>
 <p align="center">
