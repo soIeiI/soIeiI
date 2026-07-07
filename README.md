@@ -8,7 +8,7 @@
 <img src="https://i.postimg.cc/PfpdfQhP/IMG-7294.gif" width=500 height=400>
 </p>
 <p align="center">
-<img src="https://i.postimg.cc/NjhZ1LF4/Untitled351-20240820172521.png" height=430 width=500>
+<img src="https://i.postimg.cc/NjhZ1LF4/Untitled351-20240820172521.png" height=430 width=2000>
 </p>
 <p align="center">
 click on the stamps for my links !
@@ -19,7 +19,7 @@ click on the stamps for my links !
 
 </div>
 <p align="center">
-<img src="https://i.postimg.cc/bYD638KF/Untitled351-20240820172342.png" height=430 width=500>
+<img src="https://i.postimg.cc/bYD638KF/Untitled351-20240820172342.png" height=430 width=2000>
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/aeb941138b67c3cf7e29353479fa948b/7c46234135b8c7f9-8a/s2048x3072/f439de8c55a92b5e880370480f6c971d4ad1bb8d.pnj">
